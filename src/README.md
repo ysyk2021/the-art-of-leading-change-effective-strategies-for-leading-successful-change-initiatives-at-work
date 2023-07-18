@@ -10,5 +10,4 @@ Whether you're leading a small project or a complex organizational change, The A
 
 Let's begin the journey of leading successful change initiatives at work!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
