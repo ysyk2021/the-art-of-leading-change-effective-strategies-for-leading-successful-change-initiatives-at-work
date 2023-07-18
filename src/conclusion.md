@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 10: Conclusion
-======================
-
 In this book, we have explored effective strategies for leading successful change initiatives at work. From developing a clear and compelling vision for change to communicating that vision effectively, addressing resistance and negative attitudes, and cultivating a change leadership mindset, change leaders can navigate challenges and inspire and motivate stakeholders to embrace change.
 
 Recap of Key Strategies for Leading Successful Change Initiatives
