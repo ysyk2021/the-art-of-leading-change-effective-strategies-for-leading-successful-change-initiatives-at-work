@@ -1,1 +1,0 @@
-for the book "the art of leading change effective strategies for leading successful change initiatives at work", write a chapter: "understanding the science behind change".  Use Markdown format. Use English.
