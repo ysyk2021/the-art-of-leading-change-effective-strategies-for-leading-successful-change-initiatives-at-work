@@ -1,4 +1,3 @@
-# Managing Resistance and Conflict
 
 Change is never easy. As a leader, you will inevitably face resistance and conflict when implementing change initiatives in the workplace. This chapter will explore effective strategies for managing resistance and conflict, enabling you to navigate these challenges with confidence.
 

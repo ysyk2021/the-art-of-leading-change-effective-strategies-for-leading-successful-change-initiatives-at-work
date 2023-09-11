@@ -1,5 +1,3 @@
-Dealing with Negative Attitudes and Behavior
-=======================================================
 
 In this chapter, we will explore strategies for effectively dealing with negative attitudes and behavior during change initiatives. Negative attitudes and behavior can hinder the success of change efforts and create a toxic work environment. Therefore, it is important for leaders to address these challenges proactively and navigate them in a constructive manner.
 

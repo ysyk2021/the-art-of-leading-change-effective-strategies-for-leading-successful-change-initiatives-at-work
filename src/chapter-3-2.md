@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-=========================================================
 
 In this chapter, we will explore the powerful techniques of positive self-talk and visualization as effective strategies for leading successful change initiatives at work. These techniques can help leaders build resilience, maintain motivation, and inspire their teams throughout the change process.
 

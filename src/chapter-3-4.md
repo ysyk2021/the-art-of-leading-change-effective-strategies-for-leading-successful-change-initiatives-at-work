@@ -1,5 +1,3 @@
-Developing Empathy and Compassion through Change Leadership
-=======================================================================
 
 In this chapter, we will explore the importance of developing empathy and compassion as a change leader. Effective change leadership requires not only strong strategic skills but also the ability to understand and connect with the emotions and experiences of those affected by the change. By developing empathy and compassion, leaders can create a supportive environment, enhance employee engagement, and navigate the challenges associated with organizational change.
 

@@ -1,5 +1,3 @@
-Chapter 6: Leading Change with Confidence
-=========================================
 
 Change is not an easy process, and leading change initiatives can be even harder. It takes courage and confidence to guide people through the transformational journey successfully. However, with the right strategies and techniques, anyone can develop effective change leadership skills.
 

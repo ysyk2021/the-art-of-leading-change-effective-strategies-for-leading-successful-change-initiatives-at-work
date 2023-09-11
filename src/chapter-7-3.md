@@ -1,5 +1,3 @@
-Managing Power Dynamics and Conflict
-===============================================
 
 In this chapter, we will explore effective strategies for managing power dynamics and conflict during change initiatives. Power dynamics and conflict can arise as organizations undergo change, and if left unaddressed, they can undermine the success of change efforts. Therefore, it is essential for leaders to understand and manage these dynamics in a constructive and productive manner.
 

@@ -1,5 +1,3 @@
-Encouraging Change Across the Organization
-=====================================================
 
 In the realm of leading successful change initiatives at work, it is crucial to encourage change across the entire organization. This chapter explores strategies and techniques for fostering a culture of change, driving adoption of new ideas, and creating momentum for organizational transformation.
 

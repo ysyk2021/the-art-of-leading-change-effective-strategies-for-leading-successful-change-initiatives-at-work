@@ -1,5 +1,3 @@
-Celebrating Change Achievements
-===========================================
 
 In the context of leading successful change initiatives at work, celebrating achievements plays a vital role in acknowledging progress, fostering motivation, and reinforcing a positive change culture. This chapter explores the importance of recognizing accomplishments, appreciating individuals and teams, and creating a sense of pride and satisfaction in the midst of organizational change.
 

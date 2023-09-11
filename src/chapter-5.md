@@ -1,5 +1,3 @@
-Chapter 5: Communicating Change Effectively
-===========================================
 
 In this chapter, we will explore how to communicate change effectively, which is critical for leading successful change initiatives.
 

@@ -1,5 +1,3 @@
-Chapter 8: Building a Culture of Change
-=======================================
 
 In this chapter, we will explore how to build a culture of change in the organization, which is critical for leading successful change initiatives.
 

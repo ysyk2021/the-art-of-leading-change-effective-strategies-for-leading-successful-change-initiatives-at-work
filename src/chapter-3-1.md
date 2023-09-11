@@ -1,5 +1,3 @@
-Techniques for Cultivating a Change Leadership Mindset
-==================================================================
 
 Cultivating a change leadership mindset is crucial for effectively leading successful change initiatives in the workplace. In this chapter, we will explore techniques that can help leaders develop the necessary mindset for driving and navigating change.
 

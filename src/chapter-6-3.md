@@ -1,5 +1,3 @@
-Encouraging Participation and Engagement
-===================================================
 
 In this chapter, we will explore the importance of encouraging participation and engagement in leading successful change initiatives at work. Effective leaders understand that involving employees in the change process fosters ownership, commitment, and ultimately, the success of organizational changes. By implementing strategies to encourage participation and engagement, leaders can create a supportive environment that promotes collaboration and drives positive change.
 

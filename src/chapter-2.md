@@ -1,5 +1,3 @@
-Chapter 2: Defining Change Leadership
-=====================================
 
 Change leadership involves guiding an organization through significant transformations, such as mergers, restructures, and culture shifts. It requires a unique set of skills, strategies, and approaches that enable leaders to create a shared vision, inspire action, and navigate complex challenges.
 

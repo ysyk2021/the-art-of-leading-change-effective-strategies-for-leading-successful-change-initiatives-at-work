@@ -1,5 +1,3 @@
-Handling Resistance and Negative Attitudes
-======================================================
 
 Change initiatives are often met with resistance and negative attitudes from employees. As a leader, effectively addressing and managing resistance is crucial to the success of the change effort. This chapter explores strategies for handling resistance and negative attitudes in the workplace and provides insights on how to navigate these challenges.
 

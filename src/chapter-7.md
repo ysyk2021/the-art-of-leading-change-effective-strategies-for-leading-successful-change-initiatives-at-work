@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Barriers to Change
-========================================
 
 Change initiatives can face several barriers that can hinder progress and success. Leaders must be prepared to address these challenges effectively to overcome them and drive change. In this chapter, we will explore some common barriers to change and strategies for overcoming them.
 

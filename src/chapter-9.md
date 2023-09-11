@@ -1,5 +1,3 @@
-Chapter 9: Measuring Results and Learning from Experience
-=========================================================
 
 Measuring results and learning from experience are critical components of successful change initiatives. In this chapter, we will explore how to track progress and measure results, reflect on and evaluate the change process, continuously learn and improve, and adapt to changes in the workplace.
 

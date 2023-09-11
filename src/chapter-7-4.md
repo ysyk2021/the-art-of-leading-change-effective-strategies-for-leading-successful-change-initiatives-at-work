@@ -1,5 +1,3 @@
-Handling Setbacks and Obstacles
-===========================================
 
 Change initiatives are seldom without setbacks and obstacles, making it crucial for leaders to have effective strategies in place to navigate these challenges. In this chapter, we will explore strategies for handling setbacks and obstacles during change initiatives and provide insights on how to overcome them successfully.
 

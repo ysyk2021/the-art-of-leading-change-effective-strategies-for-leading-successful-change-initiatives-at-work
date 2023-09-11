@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Leading successful change initiatives is an essential skill for today's workplace, where organizations face constant disruption and transformation. In this chapter, we will explore the importance of leading change in the workplace, common misconceptions about change, and the benefits of leading successful change initiatives.
 

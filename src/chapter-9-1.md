@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================
 
 Tracking progress and measuring results are essential components of leading successful change initiatives in the workplace. In this chapter, we will explore strategies and techniques for effectively monitoring the progress of change and measuring its impact.
 

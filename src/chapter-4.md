@@ -1,5 +1,3 @@
-Chapter 4: Planning Successful Change Initiatives
-=================================================
 
 In this chapter, we will explore how to plan successful change initiatives, which is critical for leading successful change at work.
 

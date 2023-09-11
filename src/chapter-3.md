@@ -1,5 +1,3 @@
-Chapter 3: Developing a Change Leadership Mindset
-=================================================
 
 Leading change initiatives requires a unique mindset that combines leadership skills, strategic thinking, and the ability to navigate complex challenges. In this chapter, we will explore key strategies for cultivating a change leadership mindset.
 

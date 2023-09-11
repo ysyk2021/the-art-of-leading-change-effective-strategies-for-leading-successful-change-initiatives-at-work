@@ -1,5 +1,3 @@
-Common Misconceptions About Change
-==============================================
 
 Change is a complex and challenging process that is often accompanied by misconceptions and misunderstandings. These misconceptions can hinder the success of change initiatives and impede progress. In this chapter, we will explore some common misconceptions about change and provide insights on how to address them effectively.
 

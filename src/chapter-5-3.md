@@ -1,4 +1,3 @@
-# Providing Feedback and Recognition
 
 In any successful change initiative, providing feedback and recognition to individuals and teams plays a crucial role. Feedback helps employees understand their performance and areas for improvement, while recognition reinforces positive behavior and motivates individuals to continue their efforts. This chapter will explore effective strategies for providing feedback and recognition during change initiatives at work.
 
